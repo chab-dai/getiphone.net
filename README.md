@@ -1,2 +1,0 @@
-# dokkiri-deshita
-ドッキリ
